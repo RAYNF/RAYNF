@@ -8,4 +8,4 @@ Here are some ideas to get you started:
 - 🌱 I’m currently try learning about something i didnt know 
 - ⚡ Fun fact: I'm still learning 
 
-[me](
+[me](karakter.jpg)
