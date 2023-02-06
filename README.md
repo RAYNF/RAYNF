@@ -1,6 +1,6 @@
 # Hi Everyone 👋
 
-** My Name is RAYNF nice to meet you this is my portofolio and my experience try new thing **
+**My Name is RAYNF nice to meet you this is my portofolio and my experience try new thing**
 
 Here are some ideas to get you started:
 
